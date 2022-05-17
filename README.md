@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @iantabz
-- 👀 
+- 👀 Looking for opportunities to expand my skills
 - 📫 How to reach me ...
 
-LINKEDIN
+LinkedIn
 https://www.linkedin.com/in/ian-mark-tabaranza-65a358232/
 
 <!---
